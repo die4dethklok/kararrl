@@ -8,4 +8,3 @@
 
 ![image](https://github.com/kararrl/kararrl/assets/160807966/68348f79-57f6-4bf4-ab8e-58cc8fa3d88d)
 
-queefburglar69
