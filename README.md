@@ -8,8 +8,9 @@
 
 
 
-![image](https://github.com/kararrl/kararrl/assets/160807966/69298ed2-4024-4bf5-b2c6-9350faa66c5d) ![image](https://github.com/kararrl/kararrl/assets/160807966/c7281da0-06cc-4661-a4a7-be707275df8e) ![image](https://github.com/kararrl/kararrl/assets/160807966/639887a9-822e-4b1b-ba6c-3422a9cec286) ![image](https://github.com/kararrl/kararrl/assets/160807966/a9b77e1f-2246-4bfe-bfdc-c5b9a4554a4f) ![image](https://github.com/kararrl/kararrl/assets/160807966/ab9f4386-cbac-4bc9-991e-e336de0aa07d)
-
+![image](https://github.com/kararrl/kararrl/assets/160807966/69298ed2-4024-4bf5-b2c6-9350faa66c5d) ![image](https://github.com/kararrl/kararrl/assets/160807966/ab9f4386-cbac-4bc9-991e-e336de0aa07d)
+ ![image](https://64.media.tumblr.com/410d1886db333831d5c08dd05f4efea9/48c0d948bff47754-bc/s100x200/d45096a73edac766f835857bbce903fc8a2bccbd.gifv) 
+![image](https://64.media.tumblr.com/fdc268833ff3772f432091784d9f07b7/48c0d948bff47754-44/s100x200/9aee501cbf6048fa0aa44d624a4fb4334be0d756.gifv)
 
 
 
