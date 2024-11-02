@@ -17,3 +17,4 @@
 
 ![image](https://github.com/kararrl/kararrl/assets/160807966/68348f79-57f6-4bf4-ab8e-58cc8fa3d88d)
 
+![image](https://github.com/user-attachments/assets/b8cbb7c1-a782-45a2-abb0-64c2938f17ad)
